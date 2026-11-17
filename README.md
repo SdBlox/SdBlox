@@ -1,16 +1,12 @@
-## Hi there 👋
+## Hello There! ✨
+#### **Here you can View My Codes, Early Access and More!**
+## **Here's Some Basic Rules:**
+**1. Do Not Swear!** <br>
+**2. Do Not Ask Personal Questions** <br>
+**3. Bad Peoples are Heavily Not Allowed to Enter!** <br>
+**4. Do Not Share Early Access Things!** <br>
+**5. Do Not Disrespect Each Other** <br>
+**6. Do Not Disrespect Admins/Mods** <br>
 
-<!--
-**SdBlox/SdBlox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# ***DO NOT BREAK THE RULES OR YOU MAY GET BANNED!***
+*SdBlox Community ✨*
